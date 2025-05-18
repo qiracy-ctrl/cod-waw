@@ -1,4 +1,4 @@
-▬▬▬▬ Provided by: quiracy   |   Join our discord for free support, updates and  other games: https://discord.gg/Yj3BhX8y59 ▬▬▬▬
+▬▬▬▬ Provided by: quiracy | Join our discord for free support, updates and  other games: https://discord.gg/Yj3BhX8y59 ▬▬▬▬
 (ALL GAMES ARE PRE-INSTALLED, YOU JUST NEED TO EXRACT AND RUN)
 
 HOW TO RUN A GAME:
